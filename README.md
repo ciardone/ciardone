@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Francesco Ciardi (@ciardone)
+- 📫 How to reach me fciardi2@gmail.com
